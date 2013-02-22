@@ -1,7 +1,7 @@
 Remember My Name
 ================
 
-Deep inside you're poinding hard
+Deep inside you're pounding hard
 My sweet stare is no safe bet
 There's no excuse for my last
 The sick thoughts come again
