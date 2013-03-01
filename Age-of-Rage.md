@@ -11,7 +11,7 @@ You could dream, while I had to fight
 New skin made of my design
 Living a new way, I redefine
 New skin made of my design
-It's my dream, and so I will fight
+It's my dream, and I will fight
 
 Verse 2 (to be written)
 
@@ -23,7 +23,7 @@ You could dream, while I had to fight
 New skin made of my design
 Living a new way, I redefine
 New skin made of my design
-It's my dream, and so I will fight
+It's my dream, and I will fight
 
 ... break (dj)
 
@@ -37,10 +37,10 @@ Define, redefine
 
 (Is it all the same?)
 I've made the same mistakes
-Breaking away from it all, I'll stop at nothing to save face
+Breaking away from it all, leading me back to the same place
 (Who is to blame?)
 Despite the way it may seem
-I've become so much more than I thought I could be
+I've become so much more than I ever thought I could be
 
 .. break (dj)
 
@@ -57,4 +57,4 @@ I've made the same mistakes
 Breaking away from it all, I'll stop at nothing to save face
 (Who is to blame?)
 Despite the way it may seem
-I've become so much more than I thought I could be
+I've become so much more than I ever thought I could be
