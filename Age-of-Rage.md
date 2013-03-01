@@ -37,7 +37,7 @@ Define, redefine
 
 (Is it all the same?)
 I've made the same mistakes
-Breaking away from it all, leading me back to the same place
+I'm leaving it behind, just me back to the same place
 (Who is to blame?)
 Despite the way it may seem
 I've become so much more than I ever thought I could be
@@ -54,7 +54,8 @@ Define, redefine
 
 (Is it all the same?)
 I've made the same mistakes
-Breaking away from it all, I'll stop at nothing to save face
+I'm leaving it behind, just me back to the same place
 (Who is to blame?)
 Despite the way it may seem
 I've become so much more than I ever thought I could be
+
