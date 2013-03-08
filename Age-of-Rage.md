@@ -1,11 +1,16 @@
 Age of Rage
 ===========
 
-Verse 1 (to be written)
+I break away, it's all the same believed the lies you told to me, I knew all along
+Blah Blah Blah... blah blah blah
+I have now found a way to see the things you said to me for what they are, still I ____
+Blah blah blah... blah blah blah
+It seems the day you walked away I found a way to let my dreams come so can I fade
+Blah blah blah... blah blah blah
 
-This time the world is mine
 Living by what you have defined
-This time the world is mine
+  Everything seems to be 
+
 ...
 You could dream, while I had to fight
 
@@ -42,9 +47,6 @@ Define, redefine
 (Is it all the same?)
 I've made the same mistakes
 Leaving it behind just brings me back to the same place
-(It's too much to take)
-But despite the way it may seem
-I've become so much more than I ever thought I could be
 
 .. break (dj)
 
@@ -62,4 +64,7 @@ Leaving it behind just brings me back to the same place
 (It's too much to take)
 But despite the way it may seem
 I've become so much more than I ever thought I could be
+
+
+
 
