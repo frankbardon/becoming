@@ -8,7 +8,7 @@ Blah blah blah... blah blah blah
 It seems the day you walked away I found a way to let my dreams come so can I fade
 Blah blah blah... blah blah blah
 
-Now you see I'm fucked up by design
+Nothings' real by design
 Living by what you have defined
 And you know that it's not what I had in mind
 You could dream, while I had to fight
