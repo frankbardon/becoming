@@ -1,5 +1,5 @@
-Age of Rage
-===========
+Define, Redefined
+=================
 
 I break away, it's all the same believed the lies you told to me, I knew all along
 I have now found a way to see the things you said to me for what they are but still I fall
@@ -40,6 +40,4 @@ Leaving it behind just brings me back to the same place
 But despite the way it may seem
 I've become so much more than I ever thought I could be
 
-
-
-
+(Need to write complex outro)
